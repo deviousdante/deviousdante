@@ -29,7 +29,7 @@
 
 <p align="center">[My Carrd](https://irltoji.carrd.co/)
 
-︶︶︶ ⊹ ︶︶︶ ୨♡୧ ︶︶︶ ⊹ ︶︶︶
+<p align="center">︶︶︶ ⊹ ︶︶︶ ୨♡୧ ︶︶︶ ⊹ ︶︶︶
 
 <!--
 **deviousdante/deviousdante** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
