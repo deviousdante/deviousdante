@@ -12,7 +12,9 @@
                      Ninjago, 
                      HTTYD, 
                      I'm the Villainess, so I'm Taming the Final Boss, 
-                     ZZZ
+                     Gachiakuta, 
+                     zzz, 
+                     LMK
 
 <p align="center">⫘⫘⫘ ⋆⋅▬▬ι═══════ﺤ⋅
       
