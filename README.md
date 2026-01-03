@@ -11,13 +11,14 @@
                      Inuyasha, 
                      Ninjago, 
                      HTTYD, 
-                     I'm the Villainess, so I'm Taming the Final Boss
+                     I'm the Villainess, so I'm Taming the Final Boss, 
+                     ZZZ
 
 <p align="center">⫘⫘⫘ ⋆⋅▬▬ι═══════ﺤ⋅
       
-<p align="center">i **love** : ToMema , Dante ,
+<p align="center">i love : ToMema , Dante ,
                    drawing , My Husband , 
-                   Wolfwood , Close friends , Dogs
+                   Wolfwood , Close friends
                    
 
 <p align="center">Dont really talk much but here I am...
