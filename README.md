@@ -7,7 +7,7 @@
 <p align="center">⫘⫘⫘ ⋆⋅▬▬ι═══════ﺤ⋅
       
 <p align="center">✦   interested in :  🖤 
-                     Trigun
+   <p align="center">Trigun
                      Jujutsu Kaisen
                      Devil May Cry
                      Vanitas no Carte
