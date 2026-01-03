@@ -1,4 +1,30 @@
-erm
+☆ ︶︶︶  ౿ ָ :zzBlackGun: 𞥊   ︶︶︶ ☆
+
+      @devious.dante    :Black_spiral:      7teen
+      𖣠    He   ۶ৎ     Him    ♂
+
+      ⫘⫘⫘ ⋆⋅▬▬ι═══════ﺤ⋅
+      ✦   interested in :  :z_heart_black: 
+                     Trigun
+                     Jujutsu Kaisen
+                     Devil May Cry
+                     Vanitas no Carte
+                     Owari no Seraph
+                     The Outsiders
+                     Black Clover
+                     Inuyasha
+                     Ninjago
+                     HTTYD
+
+      ⫘⫘⫘ ⋆⋅▬▬ι═══════ﺤ⋅
+      i love : ToMema , Dante ,
+                   drawing , My Husband , 
+                   Wolfwood , Close friends , Dogs
+
+
+                   Dont really talk much but here I am... :emoji_7~4::emoji_35~3:
+
+               :emoji_23~1:  My Carrd  :1_redpokerchips:
 <!--
 **deviousdante/deviousdante** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
