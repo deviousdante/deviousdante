@@ -1,43 +1,35 @@
-☆ ︶︶︶  ౿ ָ 🚬 𞥊   ︶︶︶ ☆
+<p align="center">
+      ️☆ ︶︶︶  ౿ ָ    🚬    𞥊   ︶︶︶ ☆
 
-
-@devious.dante    🖤      7teen
+<p align="center">@__devious.dante__    ⚫      7teen
       𖣠    He   ۶ৎ     Him    ♂
+
+<p align="center">⫘⫘⫘ ⋆⋅▬▬ι═══════ﺤ⋅
       
+<p align="center">✦   interested in :  🖤 
+                     Trigun
+                     Jujutsu Kaisen
+                     Devil May Cry
+                     Vanitas no Carte
+                     Owari no Seraph
+                     The Outsiders
+                     Black Clover
+                     Inuyasha
+                     Ninjago
+                     HTTYD
+
+<p align="center">⫘⫘⫘ ⋆⋅▬▬ι═══════ﺤ⋅
       
-⫘⫘⫘ ⋆⋅▬▬ι═══════ﺤ⋅
+<p align="center">i **love** : ToMema , Dante ,
+                   drawing , My Husband , 
+                   Wolfwood , Close friends , Dogs
+                   
 
+<p align="center">Dont really talk much but here I am...
 
-✦   interested in :  🖤
+<p align="center">[My Carrd](https://irltoji.carrd.co/)
 
-Trigun
-
-Jujutsu Kaisen
-
-Devil May Cry
-
-Vanitas no Carte
-
-Owari no Seraph
-
-The Outsiders
-
-Black Clover
-
-Inuyasha
-
-Ninjago
-
-HTTYD
-                     
-⫘⫘⫘ ⋆⋅▬▬ι═══════ﺤ⋅
-
-
-i love : ToMema , Dante ,
-
-drawing , My Husband , 
-
-Wolfwood , Close friends , Dogs
+︶︶︶ ⊹ ︶︶︶ ୨♡୧ ︶︶︶ ⊹ ︶︶︶
 
 <!--
 **deviousdante/deviousdante** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
