@@ -1,9 +1,3 @@
-<p align="center">
-      ️☆ ︶︶︶  ౿ ָ    🚬    𞥊   ︶︶︶ ☆
-
-<p align="center">@__devious.dante__    ⚫      7teen
-      𖣠    He   ۶ৎ     Him    ♂
-
 <p align="center">⫘⫘⫘ ⋆⋅▬▬ι═══════ﺤ⋅
       
 <p align="center">✦   interested in :  🖤 
