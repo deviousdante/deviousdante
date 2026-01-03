@@ -14,7 +14,9 @@
                      I'm the Villainess, so I'm Taming the Final Boss, 
                      Gachiakuta, 
                      zzz, 
-                     LMK
+                     LMK, 
+                     Arknights, 
+                     Muse Dash
 
 <p align="center">⫘⫘⫘ ⋆⋅▬▬ι═══════ﺤ⋅
       
