@@ -2,15 +2,16 @@
       
 <p align="center">✦   interested in :  🖤 
    <p align="center">Trigun
-                     Jujutsu Kaisen
-                     Devil May Cry
-                     Vanitas no Carte
-                     Owari no Seraph
-                     The Outsiders
-                     Black Clover
-                     Inuyasha
-                     Ninjago
-                     HTTYD
+                     Jujutsu Kaisen, 
+                     Devil May Cry, 
+                     Vanitas no Carte, 
+                     Owari no Seraph, 
+                     The Outsiders, 
+                     Black Clover, 
+                     Inuyasha, 
+                     Ninjago, 
+                     HTTYD, 
+                     I'm the Villainess, so I'm Taming the Final Boss
 
 <p align="center">⫘⫘⫘ ⋆⋅▬▬ι═══════ﺤ⋅
       
@@ -21,7 +22,7 @@
 
 <p align="center">Dont really talk much but here I am...
 
-<p align="center">[My Carrd](https://irltoji.carrd.co/)
+<p align="center">My Carrd https://irltoji.carrd.co/
 
 <p align="center">︶︶︶ ⊹ ︶︶︶ ୨♡୧ ︶︶︶ ⊹ ︶︶︶
 
@@ -44,3 +45,5 @@ Here are some ideas to get you started:
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31fifsuqwet3ey2fegesqnkez3q4&cover_image=true&theme=spotify-embed&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=cf7e20&bar_color_cover=false&mode=dark">
   </a>
 </p>
+
+(first time using github kinda nervous..)
