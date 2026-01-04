@@ -20,7 +20,7 @@
 Trigun • Jujutsu Kaisen • Devil May Cry • Vanitas no Carte •  
 Owari no Seraph • The Outsiders • Black Clover • Inuyasha •  
 Ninjago • HTTYD • I’m the Villainess, So I’m Taming the Final Boss •  
-Gachiakuta • ZZZ • LMK • Arknights • Muse Dash • Eminence In Shadow
+Gachiakuta • ZZZ • LMK • Arknights • Muse Dash • Eminence In Shadow • Wakfu
 
 </p>
 
