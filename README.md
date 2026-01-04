@@ -53,5 +53,35 @@ Transphobes • Basic DNI Criteria
   </a>
 </p>
 
+<p align="center">
+⫘⫘⫘ ⋆⋅▬▬ι═══════ﺤ⋅
+</p>
+
+<details align="center">
+<summary><b>Mini Art Gallery</b></summary>
+
+<br>
+
+<p align="center">
+  <img src="https://64.media.tumblr.com/bc8154c5f95fcc5fd146b58ef680d1e4/673c36895f6297a7-75/s1280x1920/6cb5130f96b39b7124cf9cf0fd26e689fe11cb0e.pnj" width="220"/>
+  <img src="https://64.media.tumblr.com/b7ead7c2d9235532082ce3702ac4345a/673c36895f6297a7-8e/s500x750/ed071b13c51160f5754c0f66ae89b0d95b595450.pnj" width="220"/>
+  <img src="https://64.media.tumblr.com/93a159df15349bc5db2a126141e5a84c/673c36895f6297a7-7e/s1280x1920/a57be6fd55529f254d24ec96b18f23e5fb1a0567.pnj" width="220"/>
+</p>
+
+<p align="center">
+  <img src="https://64.media.tumblr.com/9c328cfe5098a9bba66555c3f9d06b76/b36920d1d07b2b35-a6/s1280x1920/ebc3c4e66d92dde059d2a574651f9bd11d75e426.pnj" width="220"/>
+  <img src="https://64.media.tumblr.com/8a82d8dbbbdd969934de75c8284ee1b8/b36920d1d07b2b35-8d/s1280x1920/34f2bf8a36f9dd6d33b996b0f29ee4dec99e33f9.pnj" width="220"/>
+  <img src="https://64.media.tumblr.com/b1384958ba53d6b0584c73d9d7b895e3/b36920d1d07b2b35-c0/s1280x1920/c4f8d5fc49608b742944f1a3d407b640a404b5af.pnj" width="220"/>
+</p>
+
+<p align="center">
+  <img src="https://64.media.tumblr.com/8adb2750697af71767270876e7f029e4/dd7071008aac69a3-72/s1280x1920/218fed00d7f87e6d6494f85685875d4dc60dea51.pnj" width="220"/>
+</p>
+
+</details>
+
+<p align="center">
+︶︶︶ ⊹ ︶︶︶ ୨♡୧ ︶︶︶ ⊹ ︶︶︶
+</p>
 
 (first time using github kinda nervous..)
