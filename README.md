@@ -1,3 +1,5 @@
+   ![Views Counter](https://views-counter.vercel.app/badge?pageId=deviousdante&leftColor=000000&rightColor=db990a&type=total&label=Honey%20Bees&style=upper)
+
 <p align="center">⫘⫘⫘ ⋆⋅▬▬ι═══════ﺤ⋅
       
 <p align="center">✦   interested in :  🖤 
