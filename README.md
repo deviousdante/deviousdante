@@ -1,9 +1,9 @@
-   ![Views Counter](https://views-counter.vercel.app/badge?pageId=deviousdante&leftColor=000000&rightColor=db990a&type=total&label=Honey%20Bees&style=upper)
+   ![Views Counter](https://views-counter.vercel.app/badge?pageId=deviousdante&leftColor=3d0101&rightColor=d75802&type=total&label=Honey%20Bees&style=upper)
 
 <p align="center">⫘⫘⫘ ⋆⋅▬▬ι═══════ﺤ⋅
       
-<p align="center">✦   interested in :  🖤 
-   <p align="center">Trigun
+✦   interested in : 
+Trigun
                      Jujutsu Kaisen, 
                      Devil May Cry, 
                      Vanitas no Carte, 
@@ -21,15 +21,18 @@
                      Muse Dash
 
 <p align="center">⫘⫘⫘ ⋆⋅▬▬ι═══════ﺤ⋅
-      
-<p align="center">i love : ToMema , Dante ,
-                   drawing , My Husband , 
-                   Wolfwood , Close friends
                    
+<p align="center">DNI: proshipper or js a complete weirdo in general, if your under 15, yumeshippers / therians ( i have my reasons and prefer to be respected for them thanks ), Transphobes, Basic Dni Criteria
 
-<p align="center">Dont really talk much but here I am...
+<p align="center">
+   <details>
+  <summary>Links</summary>
+   
+[My carrd](https://irltoji.carrd.co/)
 
-<p align="center">My Carrd https://irltoji.carrd.co/
+[My spotify Playlist with over 8k songs](https://open.spotify.com/playlist/3hRIgcYQa5wo67sahKjVfM?si=c6402b3f40004bb1)
+</details>
+</p>
 
 <p align="center">︶︶︶ ⊹ ︶︶︶ ୨♡୧ ︶︶︶ ⊹ ︶︶︶
 
@@ -49,7 +52,7 @@ Here are some ideas to get you started:
 -->
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31fifsuqwet3ey2fegesqnkez3q4&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31fifsuqwet3ey2fegesqnkez3q4&cover_image=true&theme=spotify-embed&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=cf7e20&bar_color_cover=false&mode=dark">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31fifsuqwet3ey2fegesqnkez3q4&cover_image=true&theme=spotify-embed&show_offline=false&background_color=3d0101&interchange=false&profanity=false&bar_color=cf7e20&bar_color_cover=false&mode=dark">
   </a>
 </p>
 
