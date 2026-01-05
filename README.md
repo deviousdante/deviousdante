@@ -1,6 +1,6 @@
 <p align="center">
   <img
-    src="https://views-counter.vercel.app/badge?pageId=deviousdante&type=total&label=Visitors&leftColor=1a0000&rightColor=d75802&style=upper"
+    src="https://views-counter.vercel.app/badge?pageId=deviousdante&type=total&label=HoneyBees&leftColor=1a0000&rightColor=d75802&style=upper"
     alt="Visitors counter"
   />
 </p>
@@ -17,7 +17,7 @@
 ⫘⫘⫘ ⋆⋅▬▬ι═══════ﺤ⋅
 </p>
 
-## ✦ Interests
+## 🧡 Interests
 <p align="center">
 
 Trigun • Jujutsu Kaisen • Devil May Cry • Vanitas no Carte •  
