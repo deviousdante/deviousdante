@@ -1,5 +1,8 @@
 <p align="center">
-  <img src="https://views-counter.vercel.app/badge?pageId=deviousdante&leftColor=3d0101&rightColor=d75802&type=total&label=Honey%20Bees&style=upper" />
+  <img
+    src="https://views-counter.vercel.app/badge?pageId=deviousdante&type=total&label=Visitors&leftColor=1a0000&rightColor=d75802&style=upper"
+    alt="Visitors counter"
+  />
 </p>
 
 <p align="center">
