@@ -64,7 +64,7 @@ Gachiakuta • ZZZ • LMK • Arknights • Muse Dash • Eminence In Shadow �
 
 Proshippers • Under 15 • Yumeshippers / Therians  
 Transphobes • Basic DNI Criteria  
-Do not approach me as any other Mr. A's farm characters if you see me as K ( ESPECIALLY LITTLE A. ) if you see me as K, I will not interact with you since I personaly hate maf besides Kendrick himself.  
+Do not approach me as any other Mr. A's farm characters ( ESPECIALLY LITTLE A. ) if you see me as my K pony, I will not interact with you since I personaly hate maf besides Kendrick himself.  
 *(Please respect my boundaries — thank you.)*
 
 </p>
