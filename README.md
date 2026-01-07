@@ -22,7 +22,7 @@
 <br>
 
 <p align="center">
-✦ 🕯️Feel free to leave a message, drawing, or hello.🕯️
+✦ 🕯️Feel free to leave a message or smth idk how these work.🕯️
 </p>
 
 <p align="center">
