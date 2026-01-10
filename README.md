@@ -112,7 +112,7 @@ Do not approach me as any other Mr. A's farm characters ( ESPECIALLY LITTLE A. )
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/9c328cfe5098a9bba66555c3f9d06b76/b36920d1d07b2b35-a6/s1280x1920/ebc3c4e66d92dde059d2a574651f9bd11d75e426.pnj" width="220"/>
+  <img src="https://64.media.tumblr.com/9c328cfe5098a9bba66555c3f9d06b76/b36920d1d07b2b35-a6/s1280x1920/ebc3c4e66d92dde059d2a574651f9bd11d75e426.png" width="220"/>
   <img src="https://64.media.tumblr.com/8a82d8dbbbdd969934de75c8284ee1b8/b36920d1d07b2b35-8d/s1280x1920/34f2bf8a36f9dd6d33b996b0f29ee4dec99e33f9.pnj" width="220"/>
   <img src="https://64.media.tumblr.com/b1384958ba53d6b0584c73d9d7b895e3/b36920d1d07b2b35-c0/s1280x1920/c4f8d5fc49608b742944f1a3d407b640a404b5af.pnj" width="220"/>
 </p>
