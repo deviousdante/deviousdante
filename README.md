@@ -118,6 +118,7 @@ Do not approach me as any other Mr. A's farm characters ( ESPECIALLY LITTLE A. )
 
 <p align="center">
   <img src="https://64.media.tumblr.com/8adb2750697af71767270876e7f029e4/dd7071008aac69a3-72/s1280x1920/218fed00d7f87e6d6494f85685875d4dc60dea51.pnj" width="220"/>
+  <img src="https://64.media.tumblr.com/6a16732ea728d4db0bc02b9a37f207d2/401ae3daef5a70d9-9a/s1280x1920/1ac124c7996cca74187fd7ba10e1025b31254e5c.pnj" width="220"/>
 </p>
 
 </details>
@@ -126,4 +127,4 @@ Do not approach me as any other Mr. A's farm characters ( ESPECIALLY LITTLE A. )
 ︶︶︶ ⊹ ︶︶︶ ୨♡୧ ︶︶︶ ⊹ ︶︶︶
 </p>
 
-(first time using github kinda nervous..)
+( To all the Dante fans in VNC, I am the one who made all the new Dante gifs in tenor heh.. )
