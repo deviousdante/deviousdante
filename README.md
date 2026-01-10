@@ -48,11 +48,12 @@
 ## 🧡 Interests
 <p align="center">
 
-Trigun • Jujutsu Kaisen • Devil May Cry • Vanitas no Carte •  
+Trigun • Cowboy Bepbop • Jujutsu Kaisen • Vanitas no Carte •  
 Owari no Seraph • The Outsiders • Black Clover • Inuyasha •  
 Ninjago • HTTYD • I’m the Villainess, So I’m Taming the Final Boss •  
 Gachiakuta • ZZZ • LMK • Arknights • Muse Dash • Eminence In Shadow •  
-Wakfu • Spirit: Stallion of Cimarron • centaurworld • dispatch
+Wakfu • Spirit: Stallion of Cimarron • centaurworld • dispatch •  
+Devil May Cry
 
 </p>
 
