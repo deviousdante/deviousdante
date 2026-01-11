@@ -53,7 +53,7 @@ Owari no Seraph • The Outsiders • Black Clover • Inuyasha •
 Ninjago • HTTYD • I’m the Villainess, So I’m Taming the Final Boss •  
 Gachiakuta • ZZZ • LMK • Arknights • Muse Dash • Eminence In Shadow •  
 Wakfu • Spirit: Stallion of Cimarron • centaurworld • dispatch •  
-Devil May Cry
+Devil May Cry • Pokemon • Kirby
 
 </p>
 
