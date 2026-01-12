@@ -143,4 +143,32 @@ If you see me as my K pony, I won’t engage unless you’re another K cos.
 ︶︶︶ ⊹ ︶︶︶ ୨♡୧ ︶︶︶ ⊹ ︶︶︶
 </p>
 
+<p align="center">
+⫘⫘⫘ ⋆⋅▬▬ι═══════ﺤ⋅
+</p>
+<p align="center">
+  <img src="https://64.media.tumblr.com/2cca504318d4f32b07c4d4fbbc182cb2/76701b348b41a101-12/s100x200/11199c9ae87c4c39f9a71f1bd9ecd4c74adc029a.gif" height="60"/>
+  <img src="https://64.media.tumblr.com/45ebe6201eba32724d2ca0af6d7f93b1/76701b348b41a101-dc/s100x200/2774bd48e04bbeee3a5948708f789510db7e29cb.gif" height="60"/>
+  <img src="https://64.media.tumblr.com/bf36c708b3948a837718aac4f6d09660/20f4074ff475ec40-59/s100x200/210ae760df5195621b2d5200ddc87a043a583ce1.gif" height="60"/>
+  <img src="https://64.media.tumblr.com/54a093bb28c7fa8fae28248f95e774d0/4698f7fa295f4f19-6f/s250x400/94d872b67b2bcf3a1e582cd154c80caf6b2d04cd.gif" height="60"/>
+  <img src="https://64.media.tumblr.com/8f185ec7ce3c0c59b0613feb843f6712/e53ef91ed552dba9-53/s100x200/4952a61c5ff63a2bb3b95dc2c014d29eb1d2cbcc.gif" height="60"/>
+  <img src="https://64.media.tumblr.com/2a94814fb52fe701e13d17b1792da643/d07f5b56b39f36ad-e4/s100x200/74c05b6cafb998d004e216db30996cc198d79a3e.gif" height="60"/>
+  <img src="https://64.media.tumblr.com/e8f9bbe441a39042c44db3567189f63d/9ff0c6c764276d0b-b2/s100x200/36673fcc4199e587721dd36208be8f0980e82165.gif" height="60"/>
+  <img src="https://64.media.tumblr.com/e3c9fea42d7a9411f739568fadb9814f/5e6ba02f1f56ef5b-5d/s100x200/d1ef4316525aaeae02f6ff001de7cbc0b9df8a42.gif" height="60"/>
+  <img src="https://64.media.tumblr.com/6da790c7452ef2b8a91f339f152120ba/5e6ba02f1f56ef5b-ee/s100x200/9dccfb418414cc0b888a3aa0a33b180165241efd.gif" height="60"/>
+  <img src="https://64.media.tumblr.com/04cff198b05bbd113e53d5be06611dfa/268d89e57bd8925f-f0/s100x200/2c0d380bef06d7d72e27b704d4cfa5325d150d1e.gif" height="60"/>
+  <img src="https://cdn.discordapp.com/attachments/1291240594051694635/1460120197456334982/ezgif-241158d0d5602ef2.gif?ex=6965c266&is=696470e6&hm=f43a6a57de8519c9f2b12a416795dd7e0d4c7d334772965b2184e55cfe23901d" height="60"/>
+  <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/92529d10-8856-4861-ac3a-3822949d7a97/ddovmx8-650fffc5-f462-4a5c-914f-878370b104a9.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi85MjUyOWQxMC04ODU2LTQ4NjEtYWMzYS0zODIyOTQ5ZDdhOTcvZGRvdm14OC02NTBmZmZjNS1mNDYyLTRhNWMtOTE0Zi04NzgzNzBiMTA0YTkuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.PMLscs0zZLKS1iLxGBziVGAx2HB8V3mzSpTz5Cjiuvs" height="60"/>
+  <img src="https://64.media.tumblr.com/2e279ee6612c26a56ca2469c226bb9db/280391ef11f3d718-38/s100x200/aa44304880d2c3d77470a09ef1c9aa046070f272.png" height="60"/>
+  <img src="https://64.media.tumblr.com/d4d2e490b6e42653792341ba9fdb7ff0/099c446d17d76cce-00/s250x400/3df2da895d9b91b667406117a8960e0338ae2ded.gif" height="60"/>
+  <img src="https://deuilmaker.neocities.org/blinkies/trigun%20blinkie5.gif" height="60"/>
+</p>
+
+</details>
+
+<p align="center">
+︶︶︶ ⊹ ︶︶︶ ୨♡୧ ︶︶︶ ⊹ ︶︶︶
+</p>
+
+
 ( To all the Dante fans in VNC, I am the one who made all the new Dante gifs in tenor heh.. )
