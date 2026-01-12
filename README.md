@@ -55,6 +55,11 @@
 ⫘⫘⫘ ⋆⋅▬▬ι═══════ﺤ⋅
 </p>
 
+<p align="center">
+✦ <a href="https://www.tiktok.com/@luckvvoltia"><b>I LOVE MY VASH</b></a> ✦
+</p>
+
+
 ## ✦ About Me
 <p align="center">
 
