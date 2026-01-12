@@ -17,7 +17,7 @@
 </p>
 
 <details align="center">
-<summary><b>Sign My Atabook</b></summary>
+<summary><b>Sign My Atabook and StrawPage</b></summary>
 
 <br>
 
@@ -33,6 +33,17 @@
     />
   </a>
 </p>
+</p>
+
+<p align="center">
+  <a href="https://deviousdante.straw.page" target="_blank">
+    <img
+      src="https://img.shields.io/badge/Sign%20Here-StrawPage-3d0101?style=for-the-badge&logo=bookstack&logoColor=cf7e20"
+      alt="Sign my StrawPage"
+    />
+  </a>
+</p>
+
 
 </details>
 
