@@ -81,7 +81,7 @@ I don’t usually accept friend requests from people I don’t know, and I may n
 ## 🧡 Interests
 <p align="center">
 
-Trigun • Cowboy Bepbop • Jujutsu Kaisen • Vanitas no Carte •  
+Trigun • Cowboy Bepbop • Beastars • Jujutsu Kaisen • Vanitas no Carte •  
 Owari no Seraph • The Outsiders • Black Clover • Inuyasha •  
 Ninjago • HTTYD • I’m the Villainess, So I’m Taming the Final Boss •  
 Gachiakuta • ZZZ • LMK • Arknights • Muse Dash • Eminence In Shadow •  
