@@ -22,7 +22,7 @@
 <br>
 
 <p align="center">
-✦ 🕯️Feel free to leave a message or doodles, I check frequently !!🕯️
+✦ 🕯️Feel free to leave a message, doodle, or a song recommendation, I check frequently !!🕯️
 </p>
 
 <p align="center">
