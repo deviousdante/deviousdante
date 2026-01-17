@@ -197,3 +197,5 @@ If you see me as my K pony, I won’t engage unless you’re another K cos.
 
 
 ( To all the Dante fans in VNC, I am the one who made all the new Dante gifs in tenor heh.. )
+
+https://github.com/user-attachments/assets/9c0e4929-555a-4bd7-8dd3-828fbc330908
