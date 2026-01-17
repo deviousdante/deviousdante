@@ -63,6 +63,8 @@
 ## ✦ About Me
 <p align="center">
 
+**DONT COPY MY PONIES !!**
+
 Hi hi, I’m **Dante** — though I also go by whatever pony I’m using on Ponytown at the moment, so honestly, you can call me pretty much anything.
 
 You’ll usually find me hanging around the **Spawn**, **Bakery**, or occasionally near the **Docs**. I’m very chill and I genuinely enjoy when people come up to me — whether it’s for cuddles, to hide, or just to sit nearby. If I seem scary, intimidating, or a little rude at first, I promise it’s not intentional. I’m actually way more nervous about interacting than I let on, even though I still enjoy talking (awkwardly).
