@@ -88,7 +88,7 @@ Owari no Seraph • One Piece • The Outsiders • Black Clover • Inuyasha �
 Ninjago • HTTYD • I’m the Villainess, So I’m Taming the Final Boss •  
 Gachiakuta • ZZZ • LMK • Arknights • Muse Dash • Eminence In Shadow •  
 Wakfu • Spirit: Stallion of Cimarron • centaurworld • dispatch •  
-Devil May Cry • Chainsaw Man • Pokemon • Kirby
+Devil May Cry • Chainsaw Man • Pokemon • Kirby • Sonic
 
 </p>
 
@@ -229,6 +229,14 @@ Credits are listed below each video ofc — all love to the creators :DD
   
   <br>
   <sub>✦ by <b>qt.artez</b></sub>
+</p>
+
+<p align="center">
+  
+  https://github.com/user-attachments/assets/da9c163e-3097-4301-b958-e444bc0c5f3b  
+  
+  <br>
+  <sub>✦ by <b>sushiv5p</b></sub>
 </p>
 
 <p align="center">
