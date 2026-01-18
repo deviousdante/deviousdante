@@ -122,7 +122,7 @@ Eijiro Kirishima *(My Hero Academia)* •
 Lighter *(Zenless Zone Zero)* •  
 Dante *(Devil May Cry)* •  
 Mephisto *(Blue Exorcist)* •  
-Robert Robertson III *(Dispatch)*
+Robert Robertson III *(Dispatch)* •  
 Sir Percedal of Sadlygrove *(Wakfu)* • 
 
 
