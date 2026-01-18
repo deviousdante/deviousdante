@@ -198,6 +198,40 @@ If you see me as my K pony, I won’t engage unless you’re another K cos.
 
 ( To all the Dante fans in VNC, I am the one who made all the new Dante gifs in tenor heh.. )
 
-https://github.com/user-attachments/assets/9c0e4929-555a-4bd7-8dd3-828fbc330908
+<p align="center">
+⫘⫘⫘ ⋆⋅▬▬ι═══════ﺤ⋅
+</p>
 
-https://github.com/user-attachments/assets/28db3916-5df6-4ab9-a9f8-5000457eab7e
+## ✦ Some edits
+<p align="center">
+Credits are listed below each video ofc — all love to the creators :DD
+</p>
+
+<p align="center">
+  
+  https://github.com/user-attachments/assets/9c0e4929-555a-4bd7-8dd3-828fbc330908  
+  
+  <br>
+  <sub>✦ by <b>gloriouslordchainsaw</b></sub>
+</p>
+
+<p align="center">
+  
+  https://github.com/user-attachments/assets/28db3916-5df6-4ab9-a9f8-5000457eab7e  
+  
+  <br>
+  <sub>✦ by <b>lunettes_q</b></sub>
+</p>
+
+<p align="center">
+  
+  https://github.com/user-attachments/assets/e3f1d5c4-9e5a-47a0-b338-ea6aa452ced8  
+  
+  <br>
+  <sub>✦ by <b>qt.artez</b></sub>
+</p>
+
+<p align="center">
+⫘⫘⫘ ⋆⋅▬▬ι═══════ﺤ⋅
+</p>
+
