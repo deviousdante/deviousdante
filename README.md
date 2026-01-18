@@ -99,7 +99,7 @@ Devil May Cry • Chainsaw Man • Pokemon • Kirby
 ## ⚠ DNI
 <p align="center">
 
-🚫 Proshippers • Under 15 • Yumeshippers / Therians  
+🚫 Proshippers • Under 15 • Yumeshippers (for personal reasons) / Therians  
 🚫 Transphobes • Basic DNI Criteria  
 
 ❌ Do not interact with me as other Mr. A’s Farm characters  
