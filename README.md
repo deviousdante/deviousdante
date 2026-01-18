@@ -96,6 +96,42 @@ Devil May Cry • Chainsaw Man • Pokemon • Kirby • Sonic
 ⫘⫘⫘ ⋆⋅▬▬ι═══════ﺤ⋅
 </p>
 
+## ✦ Favorite Characters
+<p align="center">
+
+Dante *(Vanitas no Carte)* •  
+Toji Fushiguro *(Jujutsu Kaisen)* •  
+Nicholas D. Wolfwood *(Trigun)* •  
+Spike Spiegel *(Cowboy Bebop)* •  
+Roronoa Zoro *(One Piece)* •  
+Yami Sukehiro *(Black Clover)* •  
+Ferid Bathory *(Seraph of the End)* •  
+Shadow the Hedgehog *(Sonic)* •  
+Legoshi *(Beastars)* •  
+Denji *(Chainsaw Man)* •  
+Kai Smith *(Ninjago)* •  
+Ne Zha *(LEGO Monkie Kid)* •  
+Lappland *(Arknights)* •  
+Raihan *(Pokémon)* •  
+Enjin *(Gachiakuta)* •  
+Caine *(The Amazing Digital Circus)* •  
+K *(MAF)* •  
+Koga *(Inuyasha)* •  
+Shirou Ogami *(BNA)* •  
+Eijiro Kirishima *(My Hero Academia)* •  
+Lighter *(Zenless Zone Zero)* •  
+Dante *(Devil May Cry)* •  
+Mephisto *(Blue Exorcist)* •  
+Robert Robertson III *(Dispatch)*
+Sir Percedal of Sadlygrove *(Wakfu)* • 
+
+
+</p>
+
+<p align="center">
+⫘⫘⫘ ⋆⋅▬▬ι═══════ﺤ⋅
+</p>
+
 ## ⚠ DNI
 <p align="center">
 
