@@ -121,7 +121,7 @@ Shirou Ogami *(BNA)* •
 Eijiro Kirishima *(My Hero Academia)* •  
 Lighter *(Zenless Zone Zero)* •  
 Dante *(Devil May Cry)* •  
-Mephisto *(Blue Exorcist)* •  
+Mephisto Pheles *(Blue Exorcist)* •  
 Robert Robertson III *(Dispatch)* •  
 Sir Percedal of Sadlygrove *(Wakfu)* • 
 
