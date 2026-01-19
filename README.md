@@ -102,6 +102,7 @@ Devil May Cry • Chainsaw Man • Pokemon • Kirby • Sonic
 Dante *(Vanitas no Carte)* •  
 Toji Fushiguro *(Jujutsu Kaisen)* •  
 Nicholas D. Wolfwood *(Trigun)* •  
+Roberto *(Trigun Stampede)* •  
 Spike Spiegel *(Cowboy Bebop)* •  
 Roronoa Zoro *(One Piece)* •  
 Yami Sukehiro *(Black Clover)* •  
