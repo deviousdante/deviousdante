@@ -135,7 +135,7 @@ Sir Percedal of Sadlygrove *(Wakfu)* •
 ## ⚠ DNI
 <p align="center">
 
-🚫 Proshippers • Under 15 • Yumeshippers (for personal reasons) / Therians  
+🚫 Proshippers • Under 15 • Yumeshippers (for personal reasons but im fine if you are chill n stuff) / Therians  
 🚫 Transphobes • Basic DNI Criteria  
 
 ❌ Do not interact with me as other Mr. A’s Farm characters  
