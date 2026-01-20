@@ -76,6 +76,8 @@ I’m in a lot of fandoms, so if you see me cosplaying a character you recognize
 
 I don’t usually accept friend requests from people I don’t know, and I may not accept requests immediately. On rare occasions, I might even wander over to cuddle or hide near you — it doesn’t happen often because I’m a nervous wreck with new people, but it does happen. I *will*, however, happily give crowns when I spot characters I recognize :D
 
+  <img src="https://64.media.tumblr.com/aba7fd8118abb19df7d7f2561cfb6a94/95ba02d804d8381c-8f/s1280x1920/f4a4484dbc0eb48275f0a398589e3e0721abf2d0.gifv" height="30"/> <img src="https://64.media.tumblr.com/cc1364b4f55476a241098193986aee65/f64dc6beddb96a60-61/s500x750/0f75afa580e1235b6fd4c3f7f93f3c811b16f7aa.gifv" height="30"/>
+
 </p>
 
 
