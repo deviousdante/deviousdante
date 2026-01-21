@@ -93,7 +93,7 @@ Owari no Seraph • One Piece • The Outsiders • Black Clover • Inuyasha �
 Ninjago • HTTYD • I’m the Villainess, So I’m Taming the Final Boss •  
 Gachiakuta • ZZZ • LMK • Arknights • Muse Dash • Eminence In Shadow •  
 Wakfu • Spirit: Stallion of Cimarron • centaurworld • dispatch •  
-Devil May Cry • Chainsaw Man • Pokemon • Kirby • Sonic
+Devil May Cry • Chainsaw Man • Pokemon • Kirby • Sonic • COD
 
 </p>
 
