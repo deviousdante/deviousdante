@@ -275,6 +275,14 @@ Credits are listed below each video ofc — all love to the creators :DD
 
 <p align="center">
   
+  https://github.com/user-attachments/assets/6748b3e4-2d4f-4cb4-8ef9-89e26ed55937  
+  
+  <br>
+  <sub>✦ by <b>kuyadeli</b></sub>
+</p>
+
+<p align="center">
+  
   https://github.com/user-attachments/assets/e3f1d5c4-9e5a-47a0-b338-ea6aa452ced8  
   
   <br>
