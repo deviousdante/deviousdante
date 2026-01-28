@@ -110,6 +110,8 @@ Nicholas D. Wolfwood *(Trigun)* •
 Roberto *(Trigun Stampede)* •  
 Spike Spiegel *(Cowboy Bebop)* •  
 Roronoa Zoro *(One Piece)* •  
+Lappland *(Arknights)* •  
+Catello Wulfgard Luppino *(Arknights: Endfield)* •  
 Yami Sukehiro *(Black Clover)* •  
 Ferid Bathory *(Seraph of the End)* •  
 Shadow the Hedgehog *(Sonic)* •  
@@ -117,7 +119,6 @@ Legoshi *(Beastars)* •
 Denji *(Chainsaw Man)* •  
 Kai Smith *(Ninjago)* •  
 Ne Zha *(LEGO Monkie Kid)* •  
-Lappland *(Arknights)* •  
 Raihan *(Pokémon)* •  
 Enjin *(Gachiakuta)* •  
 Caine *(The Amazing Digital Circus)* •  
