@@ -7,8 +7,8 @@
 
 <p align="center">
   <img 
-    src="https://64.media.tumblr.com/abd32af15bb466ac861685ac238ec485/feb21ab4a32eda98-9e/s2048x3072/0ccf60fdde9c1d0642f8d4d85020e0b2a07ccf41.pnj"
-    width="500"
+    src="https://cdn.discordapp.com/attachments/1204298954314096680/1466642531206041792/19c0d08e12d48-screenshotUrl.jpg?ex=697d7ccc&is=697c2b4c&hm=bfd9d3b3db01fdc9a76ff59fc812f9021df829fccebedf45024e158f5efb1756"
+    width="700"
   />
 </p>
 
