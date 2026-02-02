@@ -1,14 +1,15 @@
-<p align="center">
-  <img
-    src="https://views-counter.vercel.app/badge?pageId=deviousdante&type=total&label=HoneyBees&leftColor=1a0000&rightColor=d75802&style=upper"
-    alt="Visitors counter"
-  />
-</p>
 
 <p align="center">
   <img 
     src="https://cdn.discordapp.com/attachments/1204298954314096680/1466642531206041792/19c0d08e12d48-screenshotUrl.jpg?ex=697d7ccc&is=697c2b4c&hm=bfd9d3b3db01fdc9a76ff59fc812f9021df829fccebedf45024e158f5efb1756"
     width="700"
+  />
+</p>
+
+<p align="center">
+  <img
+    src="https://komarev.com/ghpvc/?username=deviousdante&label=Honey%20Bees&color=1a0000&style=flat-square"
+    alt="Visitors"
   />
 </p>
 
