@@ -61,7 +61,7 @@
 </p>
 
 <p align="center">
-<img width="700" height="565" alt="Image" src="https://github.com/user-attachments/assets/af00d33f-4a20-4efd-9530-1476f96e0f77" />
+<img width="700" height="565" alt="Image" src="https://github.com/user-attachments/assets/90b56872-d40c-48de-b918-9d138c4de8f2" />
 </p>
 
 ## ✦ About Me
