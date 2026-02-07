@@ -1,8 +1,7 @@
 
 <p align="center">
   <img 
-    src="https://cdn.discordapp.com/attachments/1204298954314096680/1466642531206041792/19c0d08e12d48-screenshotUrl.jpg?ex=697d7ccc&is=697c2b4c&hm=bfd9d3b3db01fdc9a76ff59fc812f9021df829fccebedf45024e158f5efb1756"
-    width="700"
+    <img width="2755" height="1665" alt="Image" src="https://github.com/user-attachments/assets/64abd64c-123b-4c7b-8308-10a36217edf5"
   />
 </p>
 
