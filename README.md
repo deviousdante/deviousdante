@@ -178,6 +178,10 @@ If you see me as my K pony, I won’t engage unless you’re another K cos.
 </p>
 
 <p align="center">
+<img width="2160" height="1416" alt="Image" src="https://github.com/user-attachments/assets/cf4ee3a0-778b-42c9-bd86-4ee7ff95de50" />
+</p>
+
+<p align="center">
 <img width="391" height="587" alt="Image" src="https://github.com/user-attachments/assets/9a1a5495-a594-4b29-bc86-38a448b8cfba" />
 </p>
 <p align="center">
