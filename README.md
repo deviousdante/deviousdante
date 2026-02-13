@@ -178,7 +178,7 @@ If you see me as my K pony, I won’t engage unless you’re another K cos.
 </p>
 
 <p align="center">
-<img width="2160" height="1416" alt="Image" src="https://github.com/user-attachments/assets/cf4ee3a0-778b-42c9-bd86-4ee7ff95de50" />
+<img width="660" height="416" alt="Image" src="https://github.com/user-attachments/assets/cf4ee3a0-778b-42c9-bd86-4ee7ff95de50" />
 </p>
 
 <p align="center">
@@ -250,71 +250,6 @@ If you see me as my K pony, I won’t engage unless you’re another K cos.
 
 
 ( To all the Dante fans in VNC, I am the one who made all the new Dante gifs in tenor heh.. )
-
-<p align="center">
-⫘⫘⫘ ⋆⋅▬▬ι═══════ﺤ⋅
-</p>
-
-## ✦ Some edits
-<p align="center">
-Credits are listed below each video ofc — all love to the creators :DD
-</p>
-
-<p align="center">
-  
-  https://github.com/user-attachments/assets/e296e44b-022c-463f-834d-5fbe0d2b725a 
-  
-  <br>
-  <sub>✦ by <b>koleedits</b></sub>
-</p>
-
-<p align="center">
-  
-  https://github.com/user-attachments/assets/9c0e4929-555a-4bd7-8dd3-828fbc330908  
-  
-  <br>
-  <sub>✦ by <b>gloriouslordchainsaw</b></sub>
-</p>
-
-<p align="center">
-  
-  https://github.com/user-attachments/assets/01b0c3b6-1692-4479-9c67-f9b6fe1d2ed4  
-  
-  <br>
-  <sub>✦ by <b>k1shouu_</b></sub>
-</p>
-
-<p align="center">
-  
-  https://github.com/user-attachments/assets/28db3916-5df6-4ab9-a9f8-5000457eab7e  
-  
-  <br>
-  <sub>✦ by <b>lunettes_q</b></sub>
-</p>
-
-<p align="center">
-  
-  https://github.com/user-attachments/assets/6748b3e4-2d4f-4cb4-8ef9-89e26ed55937  
-  
-  <br>
-  <sub>✦ by <b>kuyadeli</b></sub>
-</p>
-
-<p align="center">
-  
-  https://github.com/user-attachments/assets/e3f1d5c4-9e5a-47a0-b338-ea6aa452ced8  
-  
-  <br>
-  <sub>✦ by <b>qt.artez</b></sub>
-</p>
-
-<p align="center">
-  
-  https://github.com/user-attachments/assets/da9c163e-3097-4301-b958-e444bc0c5f3b  
-  
-  <br>
-  <sub>✦ by <b>sushiv5p</b></sub>
-</p>
 
 <p align="center">
 ⫘⫘⫘ ⋆⋅▬▬ι═══════ﺤ⋅
