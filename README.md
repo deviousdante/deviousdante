@@ -255,3 +255,8 @@ If you see me as my K pony, I won’t engage unless you’re another K cos.
 ⫘⫘⫘ ⋆⋅▬▬ι═══════ﺤ⋅
 </p>
 
+<p align="center">
+
+https://github.com/user-attachments/assets/4f0e1246-ef41-4f31-b821-b68ec8c13ac9
+
+</p>
