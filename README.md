@@ -79,6 +79,7 @@ I don’t usually accept friend requests from people I don’t know, and I may n
 Also oomfs if yall want my discord feel free to ask !!
 
   <img src="https://64.media.tumblr.com/aba7fd8118abb19df7d7f2561cfb6a94/95ba02d804d8381c-8f/s1280x1920/f4a4484dbc0eb48275f0a398589e3e0721abf2d0.gifv" height="30"/> <img src="https://64.media.tumblr.com/cc1364b4f55476a241098193986aee65/f64dc6beddb96a60-61/s500x750/0f75afa580e1235b6fd4c3f7f93f3c811b16f7aa.gifv" height="30"/>
+  <img width="220" height="40" alt="Image" src="https://github.com/user-attachments/assets/32c2697f-0f6d-4b45-97d1-361fc3f7c6d5" />
 
 </p>
 
