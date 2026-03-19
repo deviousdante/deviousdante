@@ -152,6 +152,8 @@ Sir Percedal of Sadlygrove *(Wakfu)* •
 (especially Little A).  
 If you see me as my K pony, I won’t engage unless you’re another K cos.
 
+"Seperate Fiction from reality" and its someone liking incest and child x adult shit like cmon dude. Its nasty to even be into anything like that fictional or not ESPECIALLY when youre a grown ass adult.
+
 *(Please respect my boundaries — thank you.)*
 
 </p>
