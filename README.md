@@ -254,7 +254,7 @@ If you see me as my K pony, I won’t engage unless you’re another K cos.
 </p>
 
 <p align="center">
-  <img src= "https://github.com/user-attachments/assets/12c0fa7e-b255-474e-bdcf-386376a520de"
+  <img src= "https://github.com/user-attachments/assets/12c0fa7e-b255-474e-bdcf-386376a520de" height="900"/>
 </p>
 
 ( To all the Dante fans in VNC, I am the one who made all the new Dante gifs in tenor heh.. )
@@ -270,10 +270,4 @@ https://github.com/user-attachments/assets/0ff34a40-e7b5-451a-8997-58c47dbfe32b
 </p>
 <p align="center">
 ✦ <a href="https://www.tiktok.com/@p1xeldust_?_r=1&_t=ZP-94Wi9XIIDwk"><b>Made by Pixel ✦</b></a> ✦
-</p>
-
-<p align="center">
-
-https://github.com/user-attachments/assets/4f0e1246-ef41-4f31-b821-b68ec8c13ac9
-
 </p>
