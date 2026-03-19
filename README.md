@@ -253,6 +253,9 @@ If you see me as my K pony, I won’t engage unless you’re another K cos.
 ︶︶︶ ⊹ ︶︶︶ ୨♡୧ ︶︶︶ ⊹ ︶︶︶
 </p>
 
+<p align="center">
+  <img src= "https://github.com/user-attachments/assets/12c0fa7e-b255-474e-bdcf-386376a520de"
+</p>
 
 ( To all the Dante fans in VNC, I am the one who made all the new Dante gifs in tenor heh.. )
 
