@@ -271,3 +271,13 @@ https://github.com/user-attachments/assets/0ff34a40-e7b5-451a-8997-58c47dbfe32b
 <p align="center">
 ✦ <a href="https://www.tiktok.com/@p1xeldust_?_r=1&_t=ZP-94Wi9XIIDwk"><b>Made by Pixel ✦</b></a> ✦
 </p>
+
+<p align="center">
+
+https://github.com/user-attachments/assets/88ca2708-e622-4d71-8ded-bea730713776
+
+</p>
+
+<p align="center">
+✦ <a href="https://www.tiktok.com/@grippers_2000?_r=1&_t=ZP-94q5H0DmUIw"><b>Made by grippers_2000</b></a> ✦
+</p>
