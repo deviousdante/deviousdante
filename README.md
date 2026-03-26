@@ -96,7 +96,8 @@ Owari no Seraph • One Piece • The Outsiders • Black Clover • Inuyasha �
 Ninjago • HTTYD • I’m the Villainess, So I’m Taming the Final Boss •  
 Gachiakuta • ZZZ • LMK • Arknights • Muse Dash • Eminence In Shadow •  
 Wakfu • Spirit: Stallion of Cimarron • centaurworld • dispatch •  
-Devil May Cry • Chainsaw Man • Pokemon • Kirby • Sonic • COD
+Devil May Cry • Chainsaw Man • Pokemon • Kirby • Sonic • COD •  
+The Great Pretender
 
 </p>
 
@@ -115,6 +116,7 @@ Spike Spiegel *(Cowboy Bebop)* •
 Roronoa Zoro *(One Piece)* •  
 Lappland *(Arknights)* •  
 Catello Wulfgard Luppino *(Arknights: Endfield)* •  
+Laurent Thierry *(The Great Pretender)* •  
 Yami Sukehiro *(Black Clover)* •  
 Ferid Bathory *(Seraph of the End)* •  
 Shadow the Hedgehog *(Sonic)* •  
