@@ -34,7 +34,7 @@
 </p>
 
 <p align="center">
-  <a href="https://a-devious.straw.page" target="_blank">
+  <a href="https://a-devious-dantes.straw.page" target="_blank">
     <img
       src="https://img.shields.io/badge/Sign%20Here-StrawPage-3d0101?style=for-the-badge&logo=bookstack&logoColor=cf7e20"
       alt="Sign my StrawPage"
