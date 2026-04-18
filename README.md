@@ -73,13 +73,13 @@
 
 **DONT COPY MY PONIES !!**
 
-Hi hi, I’m **Dante** — though I also go by whatever pony I’m using on Ponytown at the moment, so honestly, you can call me pretty much anything. its Usually Dante, Wolfwood, and Yin.
+Hi hi, I’m **Dante** - though I also go by whatever pony I’m using on Ponytown at the moment, so honestly, you can call me pretty much anything. its Usually Dante, Wolfwood, and Yin.
 
-You’ll usually find me hanging around the **Spawn**, **Bakery**, or occasionally near the **Docks**. I’m very chill and I genuinely enjoy when people come up to me — whether it’s for cuddles, to hide, or just to sit nearby. If I seem scary, intimidating, or a little rude at first, I promise it’s not intentional. I’m actually way more nervous about interacting than I let on, even though I still enjoy talking (awkwardly).
+You’ll usually find me hanging around the **Spawn**, **Bakery**, or occasionally near the **Docks**. I’m very chill and I genuinely enjoy when people come up to me - whether it’s for cuddles, to hide, or just to sit nearby. If I seem scary, intimidating, or a little rude at first, I promise it’s not intentional. I’m actually way more nervous about interacting than I let on, even though I still enjoy talking (awkwardly).
 
-I’m in a lot of fandoms, so if you see me cosplaying a character you recognize, feel free to approach! Just keep in mind I’m often **AFK** — if that’s the case, whispering me works to grab my attention... sometimes. If I respond right away, I was probably just lurking in chat uhhh I like to read conversations when I’m bored since I don’t have many friends on the game aside from a few.
+I’m in a lot of fandoms, so if you see me cosplaying a character you recognize, feel free to approach! Just keep in mind I’m often **AFK** - if that’s the case, whispering me works to grab my attention... sometimes. If I respond right away, I was probably just lurking in chat uhhh I like to read conversations when I’m bored since I don’t have many friends on the game aside from a few.
 
-I don’t usually accept friend requests from people I don’t know, and I may not accept requests immediately. On rare occasions, I might even wander over to cuddle or hide near you — it doesn’t happen often because I’m a nervous wreck with new people, but it does happen. I *will*, however, happily give crowns when I spot characters I recognize :D
+I don’t usually accept friend requests from people I don’t know, and I may not accept requests immediately. On rare occasions, I might even wander over to cuddle or hide near you - it doesn’t happen often because I’m a nervous wreck with new people, but it does happen. I *will*, however, happily give crowns when I spot characters I recognize :D
 
 Also oomfs if yall want my discord feel free to ask !!
 
