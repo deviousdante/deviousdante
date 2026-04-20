@@ -289,3 +289,13 @@ https://github.com/user-attachments/assets/88ca2708-e622-4d71-8ded-bea730713776
 <p align="center">
 ✦ <a href="https://www.tiktok.com/@grippers_2000?_r=1&_t=ZP-94q5H0DmUIw"><b>Made by grippers_2000</b></a> ✦
 </p>
+
+<p align="center">
+
+https://github.com/user-attachments/assets/cc59b667-c6ea-4387-a1a3-cf59cd068bcf
+
+</p>
+
+<p align="center">
+✦ <a href="https://www.tiktok.com/@sabosrookie?_r=1&_t=ZP-95gaLYHv5W2"><b>Made by Rookie</b></a> ✦
+</p>
