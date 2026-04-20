@@ -118,7 +118,7 @@ Toji Fushiguro *(Jujutsu Kaisen)* •
 Nicholas D. Wolfwood *(Trigun)* •  
 Roberto *(Trigun Stampede)* •  
 Spike Spiegel *(Cowboy Bebop)* •  
-Portgas D. Ace *(One Piece)* •  
+Franky *(One Piece)* •  
 Lappland *(Arknights)* •  
 Catello Wulfgard Luppino *(Arknights: Endfield)* •  
 Laurent Thierry *(The Great Pretender)* •  
