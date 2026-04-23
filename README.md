@@ -11,8 +11,8 @@
 </p>
 
 <p align="center">
-⫘⫘⫘ ⋆⋅▬▬ι═══════ﺤ⋅
-</p>
+  <img width="100" height="100" alt="Image" src="https://cdn.discordapp.com/attachments/1387663970671919176/1496666847788007647/Untitled550_20260422201930.png?ex=69eab71f&is=69e9659f&hm=68c38f8763bed3a7917774936615d025bca5c8b3190c96b3315e63e8ff3f61af"
+    </p>
 
 <details align="center">
 <summary><b>Sign My Atabook and StrawPage</b></summary>
