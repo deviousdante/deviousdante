@@ -87,7 +87,7 @@ Also oomfs if yall want my discord feel free to ask !!
  </p>
 
 <p align="center">
-<img width="100" height="100" alt="Image" src="https://cdn.discordapp.com/attachments/1204298954314096680/1496711648717574204/ezgif-78124adf26a735fd.gif?ex=69eae0d8&is=69e98f58&hm=cf73800878a1d8382ec72f9ffa3a642fc2362ca5297073b8cfe3f3a3008f6d18" />
+<img width="100" height="100" alt="Image" src="https://github.com/user-attachments/assets/8d8e4c55-fbe6-4a03-8dbf-2228af4342e9" />
 </p>
 
 <p align="center">
