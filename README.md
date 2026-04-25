@@ -59,7 +59,7 @@
 
 
 <p align="center">
-<img width="100" height="100" alt="Image" src="https://cdn.discordapp.com/attachments/1204298954314096680/1496698500937809980/ezgif-5fc0131fd3401b28.gif?ex=69ead499&is=69e98319&hm=942cc3f0d3724ad8e696d08ce5a5117b6bc6066a52bb8a2c2f10bf07cb68e91e" />
+<img width="100" height="100" alt="Image" src="https://github.com/user-attachments/assets/b8f1c814-8aa0-45de-8f30-5d0cf8bc3261" />
 </p>
 
 <p align="center">
