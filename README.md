@@ -97,7 +97,7 @@ Also oomfs if yall want my discord feel free to ask !!
 ## 🧡 Interests
 <p align="center">
 
-Trigun • Cowboy Bepbop • Beastars • Jujutsu Kaisen • Vanitas no Carte •  
+Trigun • Cowboy Bebop • Beastars • Jujutsu Kaisen • Vanitas no Carte •  
 Owari no Seraph • One Piece • The Outsiders • Black Clover • Inuyasha •  
 Ninjago • HTTYD • I’m the Villainess, So I’m Taming the Final Boss •  
 Gachiakuta • ZZZ • LMK • Arknights • Muse Dash • Eminence In Shadow •  
