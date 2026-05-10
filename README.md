@@ -283,6 +283,16 @@ https://github.com/user-attachments/assets/0ff34a40-e7b5-451a-8997-58c47dbfe32b
 
 <p align="center">
 
+https://github.com/user-attachments/assets/60a5fe2a-0954-4d97-af57-d233d231deb6
+
+</p>
+
+<p align="center">
+✦ <a href="https://www.tiktok.com/@nicky_nikolaozzz?_r=1&_t=ZP-96FqqcoowIB"><b>Made by nicky_nikolaozzz</b></a> ✦
+</p>
+
+<p align="center">
+
 https://github.com/user-attachments/assets/88ca2708-e622-4d71-8ded-bea730713776
 
 </p>
