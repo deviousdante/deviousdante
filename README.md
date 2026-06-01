@@ -11,7 +11,7 @@
 </p>
 
 <p align="center">
-  <img width="100" height="100" alt="Image" src="https://github.com/user-attachments/assets/e9269b92-c46c-443e-a0b8-ff9ba803f409" />
+  <img width="100" height="100" alt="Image" src="https://github.com/user-attachments/assets/fbacb41a-dbff-49f2-8711-bb0bd01da4f7" />
     </p>
 
 <details align="center">
@@ -59,7 +59,7 @@
 
 
 <p align="center">
-<img width="100" height="100" alt="Image" src="https://github.com/user-attachments/assets/b8f1c814-8aa0-45de-8f30-5d0cf8bc3261" />
+<img width="100" height="100" alt="Image" src="https://github.com/user-attachments/assets/e9269b92-c46c-443e-a0b8-ff9ba803f409" />
 </p>
 
 <p align="center">
