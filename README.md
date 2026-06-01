@@ -11,7 +11,7 @@
 </p>
 
 <p align="center">
-  <img width="100" height="100" alt="Image" src="https://cdn.discordapp.com/attachments/1204298954314096680/1496683461325357216/ezgif-4332c7cb096ae116.gif?ex=69eac698&is=69e97518&hm=143c9c5d1daf6769980f2a51458b1ed3328a8b1950fc599116a22691057ff73e"
+  <img width="100" height="100" alt="Image" src="https://github.com/user-attachments/assets/e9269b92-c46c-443e-a0b8-ff9ba803f409" />
     </p>
 
 <details align="center">
