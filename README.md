@@ -185,8 +185,11 @@ If you see me as my K pony, I won’t engage unless you’re another K cos.
 </p>
 
 <p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31fifsuqwet3ey2fegesqnkez3q4&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31fifsuqwet3ey2fegesqnkez3q4&cover_image=true&theme=spotify-embed&show_offline=false&background_color=3d0101&interchange=false&profanity=false&bar_color=cf7e20&bar_color_cover=false&mode=dark">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31fifsuqwet3ey2fegesqnkez3q4&cover_image=true&theme=default&show_offline=false&background_color=a84a0b&interchange=false&profanity=false&hide_remaster=false&bar_color=f29e0d">
+  </a>
+</p>
+
   </a>
 </p>
 
